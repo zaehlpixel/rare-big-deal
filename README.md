@@ -332,6 +332,7 @@ Free & open-source.
 | 📚 | [UnlimitedTales](https://www.unlimitedtales.com/?via=rare-big-deal) | Generate unique Storybook for children in 5 minutes with AI | Up to **35% OFF** on Black Friday **5-story Bundle** | 2025-11-30 |
 | 🥗 | [Food Camera](https://www.food.camera/?via=rare-big) | Get professional Food Photography for your resturant in seconds  | 20% OFF with code RAREBIG20 | 2025-11-30 |
 | ✒️ | [Ink Studio AI](https://inkstudioai.com/) | Create and visualize your next tattoo in minutes, thanks to AI. | 50% OFF with code **BLACKFRIDAY50** |
+| 📖 | [Meminto Stories](https://meminto.com/) | Receive prompts to write a hardcover book based on life questions and AI transcriptions from audio recordings. | 88% OFF with code **BF2025** |
 
 
 [⬆️ All categories](#table-of-contents)
